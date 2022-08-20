@@ -4,9 +4,11 @@
 "You don't take down a conglomerate by shooting them in the heart. That's the thing about conglomerates, they don't have hearts. You take them down limb by limb. And as they unravel, their illusion of control unravels." *eps1.0_hellofriend*
 
 
-
 [![domains.csv](https://www.pngall.com/wp-content/uploads/12/Paper-Plane-Fly.png)](https://www.youtube.com/watch?v=s-7pyIxz8Qg&ab_channel=RottenTomatoesClassicTrailers)
 
+## The Wipe
+
+[https://www.youtube.com/watch?v=OBOZIErHhWM&ab_channel=Mr.Robot](https://youtu.be/OBOZIErHhWM?t=119)
 
 ## Demo
 
