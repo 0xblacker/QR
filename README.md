@@ -7,7 +7,8 @@ The Rich Man and The French Man
 
 dEhlIGFOZ0VsIDB4ZiBkRWFUaAo=
 
-![](https://thumbs.dreamstime.com/b/sticker-cartoon-scared-old-man-pointing-creative-150426643.jpg)
+<img src="https://thumbs.dreamstime.com/b/sticker-cartoon-scared-old-man-pointing-creative-150426643.jpg" alt="drawing" style="width:200px;"/>
+
 
 [![domains.csv](https://www.pngall.com/wp-content/uploads/12/Paper-Plane-Fly.png)](https://www.youtube.com/watch?v=s-7pyIxz8Qg&ab_channel=RottenTomatoesClassicTrailers)
 
