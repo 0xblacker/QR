@@ -13,7 +13,7 @@ https://www.youtube.com/watch?v=sAxbn6DgNjU&ab_channel=HackersHackingHackingHack
 
 ## The Distraction
 
-![](https://www.bhphotovideo.com/images/images1500x1500/victorinox_0_9410_3uus2_pocket_knife_hunter_pro_1355478.jpg)
+<img src="https://www.bhphotovideo.com/images/images1500x1500/victorinox_0_9410_3uus2_pocket_knife_hunter_pro_1355478.jpg" alt="drawing" style="width:200px;"/>
 
 ## Demo
 
