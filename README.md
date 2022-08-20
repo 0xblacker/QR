@@ -8,7 +8,7 @@
 
 ## The Wipe
 
-[https://www.youtube.com/watch?v=OBOZIErHhWM&ab_channel=Mr.Robot](https://youtu.be/OBOZIErHhWM?t=119)
+https://www.youtube.com/watch?v=sAxbn6DgNjU&ab_channel=HackersHackingHackingHackers
 
 ## Demo
 
