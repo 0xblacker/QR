@@ -2,4 +2,4 @@
 
 
 
-[![My Fav video](https://flyclipart.com/thumbs/free-white-paper-plane-images-background-paper-plane-vector-white-1103812.png)](https://www.youtube.com/watch?v=s-7pyIxz8Qg&ab_channel=RottenTomatoesClassicTrailers)
+[![My Fav video](https://www.pngall.com/wp-content/uploads/12/Paper-Plane-Fly.png)](https://www.youtube.com/watch?v=s-7pyIxz8Qg&ab_channel=RottenTomatoesClassicTrailers)
