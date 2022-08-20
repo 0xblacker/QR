@@ -2,4 +2,4 @@
 
 
 
-[![My Fav video](https://w7.pngwing.com/pngs/865/440/png-transparent-white-paper-plane-illustration-airplane-paper-plane-white-paper-airplane-angle-white-hand-thumbnail.png)](https://www.youtube.com/watch?v=s-7pyIxz8Qg&ab_channel=RottenTomatoesClassicTrailers)
+[![My Fav video](https://www.pngfind.com/pngs/m/573-5731455_free-paper-airplane-clipart-download-free-clip-art.png)](https://www.youtube.com/watch?v=s-7pyIxz8Qg&ab_channel=RottenTomatoesClassicTrailers)
