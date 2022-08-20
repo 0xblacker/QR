@@ -5,6 +5,10 @@ The Rich Man and The French Man
 
 ![](https://rogermooresmovienation.files.wordpress.com/2018/08/pap4.jpg)
 
+The angel of death
+
+![](https://thumbs.dreamstime.com/b/sticker-cartoon-scared-old-man-pointing-creative-150426643.jpg)
+
 [![domains.csv](https://www.pngall.com/wp-content/uploads/12/Paper-Plane-Fly.png)](https://www.youtube.com/watch?v=s-7pyIxz8Qg&ab_channel=RottenTomatoesClassicTrailers)
 
 ## The Wipe
