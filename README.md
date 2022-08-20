@@ -25,7 +25,6 @@ https://www.youtube.com/watch?v=zDEPob22tHs&ab_channel=Movieclips
 
 ## QR Code
 
-![QR Code](QR.png)
+<img src="QR.png" alt="drawing" style="width:200px;"/>
 
-
-![Who is the real Batman?](bm.jpg)
+<img src="bm.jpg" alt="drawing" style="width:200px;"/>
