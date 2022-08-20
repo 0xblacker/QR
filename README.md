@@ -2,4 +2,4 @@
 
 
 
-[![My Fav video](https://library.kissclipart.com/20180902/rge/kissclipart-paper-airplane-clipart-airplane-paper-clip-art-16e7a250ebfad875.jpg)](https://www.youtube.com/watch?v=s-7pyIxz8Qg&ab_channel=RottenTomatoesClassicTrailers)
+[![My Fav video](https://flyclipart.com/thumbs/free-white-paper-plane-images-background-paper-plane-vector-white-1103812.png)](https://www.youtube.com/watch?v=s-7pyIxz8Qg&ab_channel=RottenTomatoesClassicTrailers)
